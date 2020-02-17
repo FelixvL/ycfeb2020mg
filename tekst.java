@@ -1,2 +1,2 @@
-Deze zin is van mij // Felix
+Deze zin is is ook van Sophie // Felix
 Deze zin is van Sophie
